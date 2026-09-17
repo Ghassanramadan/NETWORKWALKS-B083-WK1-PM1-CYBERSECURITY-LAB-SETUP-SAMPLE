@@ -308,8 +308,7 @@ This laboratory is intended strictly for education purposes only.
 **Ghassan ramadan**\
 Cybersecurity Professional B083
 
-LinkedIn: [https://www.linkedin.com/in/waqaskarim/](https://www.linkedin.com/in/
-ghassan-ramadan/)
+LinkedIn: [https://www.linkedin.com/in/ghassan-ramadan/]
 
 ---
 
